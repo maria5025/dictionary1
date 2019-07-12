@@ -1,1 +1,1 @@
-# dictionary1
+# leqsikologia
